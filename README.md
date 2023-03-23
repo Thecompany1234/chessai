@@ -1,2 +1,3 @@
 # chessai
-rehehehhe
+||ChessAi|| 
+Please do not use a lot uwu owo
